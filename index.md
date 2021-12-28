@@ -55,7 +55,9 @@ Dirección: ***Camí de Vilassar, s/n, 08410, Barcelona***
 
 ### Regalo
 
+El mejor regalo es vuestra asistencia, pero muchos de nuestros sueños son caros…<br>
 ES33 2100 0859 2802 0083 1797<br>
-Beneficiario: ***Alba Balmori Pastor // Laura Balcells García***
+Beneficiario: ***Alba Balmori Pastor // Laura Balcells García***<br>
+¡Muchísimas gracias!
 
 ---
