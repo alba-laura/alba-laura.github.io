@@ -28,7 +28,7 @@ Por otro lado, somos totalmente conscientes de la situación epidemiológica. Se
 Llegados este punto, esperamos que decidas confirmar tu asistencia y formar parte de este gran día. Y recuerda que no puedes equivocarte: ¡vienes de parte de la novia!
 
 ¡Te esperamos!
-Alba i Laura
+Alba y Laura
 
 ---
 
