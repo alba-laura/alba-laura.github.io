@@ -49,7 +49,14 @@ Dirección: ***Camí de Vilassar, s/n, 08410, Barcelona***
 <div id="agenda"></div>
 
 ### Agenda
-(Próximamente)
+
+13h - Cerimònia<br>
+14:30h - Aperitiu/Còctel<br>
+16:30h - Banquet<br>
+19h - Festa<br>
+<br/>
+
+***NOTA: Els horaris post-cerimònia son aproximats.***
 
 ---
 
