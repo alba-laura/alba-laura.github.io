@@ -42,7 +42,7 @@ Dirección: ***Camí de Vilassar, s/n, 08410, Barcelona***
 <iframe src="https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d2986.1349052003197!2d2.2925444157923915!3d41.544676194192014!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x12a4b83705a99d8b%3A0xff59f053d4af425!2sCam%C3%AD%20de%20Vilassar%2C%2008410%2C%20Barcelona!5e0!3m2!1sen!2ses!4v1639864306133!5m2!1sen!2ses" width="600" height="450" style="border:0;" allowfullscreen="" loading="lazy"></iframe>
 <br/>
 
-***NOTA: El restaurante solicita el certificado COVID a todos los asistentes mayores de 12 años.***
+
 
 ---
 
