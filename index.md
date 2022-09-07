@@ -43,6 +43,25 @@ Dirección: ***Camí de Vilassar, s/n, 08410, Barcelona***
 <br/>
 
 
+---
+
+<div id="transport"></div>
+
+### Transport
+
+**Bus anada** (son 2 busos que van seguits):<br>
+Plaça Espanya (BCN) – **surt a les 12:00h**<br>
+Plaça Tetuan (BCN) – **surt a les 12:15h**<br>
+ 
+Els que aneu amb vehicles particulars heu d’estar a Miravent a les **13:00h**<br>
+Hi ha aparcament fàcil, gran i gratuït allà mateix. <br>
+Una recomanació: aneu per l’AP-7 fins la sortida 13. L'alternativa per la C-31, inclou un tram de corbes...<br>
+
+**Bus tornada**<br>
+Sortirà en un únic horari sobre la mitjanit i farà el recorregut invers.
+
+<br/>
+
 
 ---
 
@@ -52,8 +71,8 @@ Dirección: ***Camí de Vilassar, s/n, 08410, Barcelona***
 
 13h - Cerimònia<br>
 14:30h - Aperitiu/Còctel<br>
-16:30h - Banquet<br>
-19h - Festa<br>
+17h - Banquet<br>
+20h - Festa<br>
 <br/>
 
 ***NOTA: Els horaris post-cerimònia son aproximats.***
